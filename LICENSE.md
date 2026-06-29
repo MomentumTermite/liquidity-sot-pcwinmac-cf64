@@ -1,4 +1,4 @@
-# 
+# Élite liquidity sniper bot outils pour Mac OS | Personnalisé liquidity sniper bot outils pour PC Windows. Avec signature des transactions et exécution rapide — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
